@@ -6,4 +6,4 @@
 - 😄 Pronouns: Tani 😃
 - ⚡ Motivation: DO IT NOW. SOMETIMES 'LATER' BECOMES 'NEVER'.
 
-### Looking for my next challenge!
+### ⚡⚡⚡ I am Currently looking for my first job and am open to anything!! ⚡⚡⚡
